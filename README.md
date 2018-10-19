@@ -8,9 +8,9 @@
 6
 > 版本：0.0.1<br>
 7
-> 作者：李金<br>
+> 作者：随心将夜<br>
 8
-> 邮件：lijinwithyou@gmail.com<br>
+> 邮件：gongxin8888@gmail.com<br>
 9
 ​
 10
